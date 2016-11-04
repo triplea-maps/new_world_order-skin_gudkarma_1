@@ -1,0 +1,1 @@
+The use of the Swastica is prohibited in some countries. For these countries, the Swastica contained in this folder is included for educational purposes and not for use as a symbol. It is everyones own decision to use the symbol.
